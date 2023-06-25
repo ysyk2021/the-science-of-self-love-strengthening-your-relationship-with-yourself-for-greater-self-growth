@@ -17,4 +17,4 @@
 17. Motivation and inspiration
 18. Self-help books
 19. Empowerment and self-awareness
-20. Mental health and well-being.
+20. Mental health and well-being

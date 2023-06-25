@@ -1,5 +1,4 @@
-Chapter 5: Barriers to Self-Love: Strategies for Overcoming Self-Doubt and Negative Self-Talk
-=============================================================================================
+# Strategies for Overcoming Self-Doubt and Negative Self-Talk
 
 Self-doubt and negative self-talk are common barriers to self-love. They can prevent us from experiencing the full spectrum of human emotions, building meaningful relationships, and pursuing our passions. In this chapter, we'll explore strategies for overcoming self-doubt and negative self-talk.
 

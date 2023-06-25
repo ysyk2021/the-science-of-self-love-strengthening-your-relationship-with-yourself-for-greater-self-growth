@@ -1,5 +1,4 @@
-Chapter 1: What is Self-Love?: The Difference Between Self-Love and Self-Esteem
-===============================================================================
+# The Difference Between Self-Love and Self-Esteem
 
 Self-love and self-esteem are often used interchangeably, but they are not the same thing. In this chapter, we will explore the difference between self-love and self-esteem.
 

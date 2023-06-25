@@ -27,5 +27,5 @@ MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. H
 17. Motivation and inspiration
 18. Self-help books
 19. Empowerment and self-awareness
-20. Mental health and well-being.
+20. Mental health and well-being
 

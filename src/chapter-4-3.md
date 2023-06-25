@@ -1,5 +1,4 @@
-Chapter 3: Cultivating Self-Love: Overcoming Resistance to Self-Love
-====================================================================
+# Overcoming Resistance to Self-Love
 
 While self-love is an important concept, it can be difficult for some individuals to cultivate. In this chapter, we will explore common barriers to self-love and provide practical strategies for overcoming resistance to self-love.
 

@@ -1,5 +1,4 @@
-Chapter 4: The Science of Self-Love: How Self-Love Changes Brain Function
-=========================================================================
+# How Self-Love Changes Brain Function
 
 Self-love is not just an abstract concept; it has a measurable impact on brain function. In this chapter, we will explore the science behind how self-love changes brain function and the benefits that can result.
 

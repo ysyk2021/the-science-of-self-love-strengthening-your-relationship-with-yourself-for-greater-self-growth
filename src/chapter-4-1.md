@@ -1,5 +1,4 @@
-Chapter 3: Cultivating Self-Love: Strategies for Cultivating Self-Love
-======================================================================
+# Strategies for Cultivating Self-Love
 
 Self-love is a journey that requires ongoing practice and commitment. In this chapter, we'll explore strategies for cultivating self-love in your own life.
 

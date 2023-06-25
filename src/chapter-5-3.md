@@ -1,5 +1,4 @@
-Chapter 4: The Science of Self-Love: The Impact of Self-Love on Behavior and Decision-Making
-============================================================================================
+# The Impact of Self-Love on Behavior and Decision-Making
 
 Self-love is not just a feel-good concept; it has real, tangible effects on our behavior and decision-making. In this chapter, we will explore the science behind self-love and its impact on our lives.
 

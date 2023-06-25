@@ -1,5 +1,4 @@
-Chapter 3: Cultivating Self-Love: The Role of Self-Care and Self-Compassion
-===========================================================================
+# The Role of Self-Care and Self-Compassion
 
 Self-love is not just a feeling -- it's a practice. In this chapter, we'll explore two essential components of cultivating self-love: self-care and self-compassion.
 

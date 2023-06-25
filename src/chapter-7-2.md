@@ -1,5 +1,4 @@
-Chapter 6: Self-Love in Practice: The Role of Self-Love in Goal-Setting and Achievement
-=======================================================================================
+# The Role of Self-Love in Goal-Setting and Achievement
 
 Self-love is a critical component of personal growth and well-being. It involves accepting oneself and treating oneself with kindness, compassion, and respect. In this chapter, we will explore the role of self-love in goal-setting and achievement.
 

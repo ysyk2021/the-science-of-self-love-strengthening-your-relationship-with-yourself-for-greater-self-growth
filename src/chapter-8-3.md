@@ -1,4 +1,4 @@
-Conclusion: Final Thoughts and Recommendations for Further Reading
+Final Thoughts and Recommendations for Further Reading
 ==================================================================
 
 Congratulations! You've reached the end of "The Science of Self-Love: Strengthening Your Relationship with Yourself for Greater Self-Growth". We hope that this book has helped you on your journey towards greater self-love and self-growth.

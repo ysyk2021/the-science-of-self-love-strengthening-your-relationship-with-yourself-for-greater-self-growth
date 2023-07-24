@@ -3,7 +3,6 @@
 - [Introduction](README.md)
   - [An overview of the book's purpose and key concepts](chapter-1-1.md)
   - [The importance of self-love for personal growth](chapter-1-2.md)
-  - [An outline of the book](chapter-1-3.md)
 - [Chapter 1: What is Self-Love?](chapter-2.md)
   - [Defining self-love and its importance](chapter-2-1.md)
   - [The difference between self-love and self-esteem](chapter-2-2.md)

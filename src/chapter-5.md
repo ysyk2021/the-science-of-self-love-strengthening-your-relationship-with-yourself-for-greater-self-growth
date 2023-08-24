@@ -1,5 +1,3 @@
-Chapter 4: The Science of Self-Love
-===================================
 
 Self-love is not just a concept; there is actually scientific evidence to support its benefits. In this chapter, we will explore the neuroscience behind self-love, how it changes brain function, and the impact it has on behavior and decision-making.
 

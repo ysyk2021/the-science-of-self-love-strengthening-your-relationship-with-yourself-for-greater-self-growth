@@ -1,5 +1,3 @@
-Chapter 1: What is Self-Love?
-=============================
 
 Self-love is a term that has gained popularity in recent years, but what does it really mean? In this chapter, we will define self-love and its importance, explore the difference between self-love and self-esteem, and examine how self-love impacts overall well-being.
 

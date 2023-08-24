@@ -1,5 +1,3 @@
-Summary of Key Points
-=================================
 
 In this book, we've explored the latest research and practices in the field of self-love. We've discussed the importance of self-care, self-compassion, mindfulness, gratitude, and positive self-talk. We've also examined common barriers to self-love, such as comparison, perfectionism, negative self-talk, and lack of boundaries.
 

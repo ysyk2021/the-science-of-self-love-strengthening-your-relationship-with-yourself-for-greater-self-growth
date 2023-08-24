@@ -1,5 +1,3 @@
-Chapter 5: Barriers to Self-Love
-================================
 
 Despite the benefits of self-love, there are many barriers that can prevent individuals from cultivating a positive relationship with themselves. In this chapter, we will explore common obstacles to self-love, strategies for overcoming self-doubt and negative self-talk, and the role of vulnerability and self-acceptance.
 

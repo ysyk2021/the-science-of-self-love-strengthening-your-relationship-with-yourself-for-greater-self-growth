@@ -1,5 +1,3 @@
-The Value of Cultivating Self-Love for Personal Growth
-==================================================================
 
 Throughout this book, we've explored the latest research and practices in the field of self-love. We've discussed the importance of self-compassion, mindfulness, gratitude, and positive self-talk. We've also examined common barriers to self-love, such as comparison, perfectionism, and negative self-talk.
 

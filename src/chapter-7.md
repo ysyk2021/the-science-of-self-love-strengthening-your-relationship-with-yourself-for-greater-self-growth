@@ -1,5 +1,3 @@
-Chapter 6: Self-Love in Practice
-================================
 
 Self-love is not just a concept; it is something that can be applied to all areas of life. In this chapter, we will explore how self-love can be applied to different areas of life, the role of self-love in goal-setting and achievement, and the impact of self-love on personal and professional relationships.
 

@@ -1,5 +1,3 @@
-Conclusion
-==========
 
 Summary of Key Points
 ---------------------
@@ -25,5 +23,4 @@ We hope this book has provided valuable insights and practical strategies for cu
 * "Radical Acceptance" by Tara Brach
 
 Remember, cultivating self-love is an ongoing process that requires practice and commitment. By prioritizing self-love, individuals can build a strong foundation for personal growth and fulfillment that extends to all areas of life.
-
 

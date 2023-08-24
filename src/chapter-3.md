@@ -1,5 +1,3 @@
-Chapter 2: The Benefits of Self-Love
-====================================
 
 Self-love is not just a feel-good concept; there are actually numerous benefits to cultivating a positive relationship with oneself. In this chapter, we will explore the physical, mental, and emotional benefits of self-love, the impact it can have on relationships, and how practicing self-love can lead to greater success.
 

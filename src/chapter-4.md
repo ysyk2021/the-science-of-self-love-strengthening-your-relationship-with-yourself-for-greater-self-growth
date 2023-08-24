@@ -1,5 +1,3 @@
-Chapter 3: Cultivating Self-Love
-================================
 
 Cultivating self-love is an ongoing process that requires practice and commitment. In this chapter, we will explore practical strategies for cultivating self-love, the role of self-care and self-compassion in this process, and how to overcome resistance to self-love.
 

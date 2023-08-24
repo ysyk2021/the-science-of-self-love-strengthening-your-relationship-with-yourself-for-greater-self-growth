@@ -1,4 +1,3 @@
-# Introduction
 
 In a world that often prioritizes productivity and achievement over self-care and self-love, it can be difficult to cultivate a strong and positive relationship with ourselves. However, taking the time to invest in our own well-being is crucial for achieving greater self-growth and leading a fulfilling life.
 

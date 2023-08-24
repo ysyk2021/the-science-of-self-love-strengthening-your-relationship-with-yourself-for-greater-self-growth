@@ -1,4 +1,3 @@
-# Common Obstacles to Self-Love
 
 Self-love is not always easy. There are many obstacles that can prevent us from fully loving and accepting ourselves. In this chapter, we'll explore some common barriers to self-love.
 

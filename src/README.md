@@ -8,3 +8,7 @@ Through a combination of research-based insights and real-life examples, this bo
 Whether you are struggling with negative self-talk, seeking greater self-awareness, or simply looking to improve your relationship with yourself, "The Science of Self-Love" offers valuable insights and actionable strategies for achieving greater self-growth. Join us on this journey of self-discovery and learn how to prioritize your own well-being for a happier, healthier life.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
